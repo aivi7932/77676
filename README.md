@@ -39,4 +39,4 @@ FC2投稿精选：偏素人风格，投稿真实性高，适合喜欢真实感�
 推荐访问 Tokyo-Hot、FC2 投稿站，这些站点提供大量无码影片入口。
 
 与制作方，建议访问 FANZA、R18.com、DLsite 等正版平台。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/aivi7932/77676 ）</span>
